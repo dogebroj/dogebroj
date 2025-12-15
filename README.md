@@ -12,30 +12,12 @@ reasons to give me money or robux:
 luau (learning), python (beefing)  
 **projects:** 
 small tools, experiments, unfinished ideas  
+
 **contact:**
 discord > email (user: dogebroj. wont accept random friend requests so tell me ur from github).
+
 **motivation** 
-change how systems optimize and algin. cold automated systems can erase the only ties to ur blood family, who tried to off u, then disown u. all without a second thought. i aim to change that. 
+personal, wont go into much detail here, but ask me and i might explain. nonetheless its real shitty. 
+
 **hobbys**
-skiing, anime, building breaking things and expanding my snack business (in school. also it made 200 bucks in 2 months. insane). 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-hi :3
+skiing, anime, building breaking things and expanding my snack business (in school. also it made 200 bucks in 2 months. 
