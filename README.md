@@ -9,15 +9,20 @@ reasons to give me money or robux:
 3. ur generous enough, right?
 
 **languages:**
+
 luau (learning), python (beefing)  
 **projects:** 
+
 small tools, experiments, unfinished ideas  
 
 **contact:**
+
 discord > email (user: dogebroj. wont accept random friend requests so tell me ur from github).
 
-**motivation** 
+**motivation:** 
+
 personal, wont go into much detail here, but ask me and i might explain. nonetheless its real shitty. 
 
-**hobbys**
+**hobbys:** 
+
 skiing, anime, building breaking things and expanding my snack business (in school. also it made 200 bucks in 2 months. 
